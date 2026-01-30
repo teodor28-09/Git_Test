@@ -1,1 +1,1 @@
-teodordelia
+teodor
