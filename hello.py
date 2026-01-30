@@ -1,1 +1,1 @@
-teod
+teodor
